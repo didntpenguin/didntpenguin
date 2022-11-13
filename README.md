@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @didntpenguin
+- 👀 I’m learning in THCS TT Cai Be
+- 🌱 I’m just become an developer 
+- 📫 Finally u can find me in facebook or telegram
